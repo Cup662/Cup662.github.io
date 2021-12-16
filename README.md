@@ -1,1 +1,1 @@
-# Cup662.special.github.io
+# Cup662.github.io
